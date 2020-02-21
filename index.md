@@ -1,0 +1,1 @@
+InfiniSwiss Blog First Awesome page!
